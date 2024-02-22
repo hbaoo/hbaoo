@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **luhungbao.it@gmail.com**
 
-- ⚡ Fun fact **Tớ lập trình dở lắm, lmao thì nhiều :)**
+- ⚡ Fun fact **Coder Lỏ :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
